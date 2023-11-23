@@ -6,3 +6,4 @@
 - 😄 Pronouns: homem
 - ⚡ Fun fact: i love playing basketball and going to the gym and sometimes play videogames
 ![](https://media.tenor.com/zAL8oCga9HAAAAAd/dog-nose-butterfly.gif)
+i have no enemies
